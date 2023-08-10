@@ -2,7 +2,7 @@
 - 👀 I’m interested in Pc games
 - 🌱 I’m currently learning about making windows 10 look like windows 7
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me at my email matykratina@email.cz
+- 📫 You can reach me at my email matykratina@email.cz
   
 
 <!---
